@@ -1,0 +1,1 @@
+Emotinal-reaction-to-terrorism
